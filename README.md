@@ -1,1 +1,1 @@
-# Sesiunea-de-Comunic-ri-tiin-ifice
+# Sesiunea-de-Comunicări-Știinșifice
